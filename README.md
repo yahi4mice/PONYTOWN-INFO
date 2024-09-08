@@ -1,6 +1,6 @@
 # PONYTOWN-INFO
 
-hi im jecka , i use thye it and neos
+hi im jecka , i use they it and neos
 
 cuddle hide i dont really care .
 
